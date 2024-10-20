@@ -1,1 +1,0 @@
-# saminutechnolab.github.io
